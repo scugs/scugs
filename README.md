@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 ![image alt](https://static.wikitide.net/rainworldwiki/7/73/Slugcat_no_right.png)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
-![til](https://s7.ezgif.com/tmp/ezgif-7-e6f5918eef.gif)
+![til](https://s6.ezgif.com/tmp/ezgif-6-3a2e66ebdd.gif)
 
 ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌
 ![til](https://media.discordapp.net/attachments/1298421993263206521/1325230717957046366/pony-town-hawk-boop-blinking-padded-toy389-4x.gif?ex=677b08c8&is=6779b748&hm=603926f7a145caec19b5d9bed93bcc4793d9ed9457c801bd8687b62cf9ef8509&=&width=265&height=340)
