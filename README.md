@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 ![image alt](https://static.wikitide.net/rainworldwiki/7/73/Slugcat_no_right.png)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
-[til](https://s7.ezgif.com/tmp/ezgif-7-d77b160838.gif)
+![til](https://s7.ezgif.com/tmp/ezgif-7-d77b160838.gif)
 ![til](https://s7.ezgif.com/tmp/ezgif-7-1bb88b8d9f.gif)![til](https://s7.ezgif.com/tmp/ezgif-7-614ec9651b.gif)
