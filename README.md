@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![image alt](https://static.wikitide.net/rainworldwiki/7/73/Slugcat_no_right.png)
+![image alt](https://www.transparenttextures.com/patterns/debut-light.png)
 ![til](https://s6.ezgif.com/tmp/ezgif-6-3a2e66ebdd.gif)
 ![til](https://s7.ezgif.com/tmp/ezgif-7-d77b160838.gif)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
