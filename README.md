@@ -18,9 +18,3 @@ Here are some ideas to get you started:
 ![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325401691398606879/cooltext473202929469867.gif?ex=677ba804&is=677a5684&hm=47c757422e786f48095b762f905d5fda136f6a308e0bf6f390ddf016f05e8bb8&)
 ![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325401690572193792/68747470733a2f2f73372e657a6769662e636f6d2f746d702f657a6769662d372d643737623136303833382e676966_1.gif?ex=677ba803&is=677a5683&hm=96279262e23eaf0af55689899b5e03c3002b9490cae66c6eafe91f2066122b3e&)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
-
-﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌
-
-(me and my bff!!)
-![til](https://media.discordapp.net/attachments/1298421993263206521/1325230717957046366/pony-town-hawk-boop-blinking-padded-toy389-4x.gif?ex=677b08c8&is=6779b748&hm=603926f7a145caec19b5d9bed93bcc4793d9ed9457c801bd8687b62cf9ef8509&=&width=265&height=340)
-![til](https://media.discordapp.net/attachments/1298421993263206521/1325230336266731591/pony-town-Im_Tuah_bird_oc__-boop-blinking-padded-toy390-4x_1.gif?ex=677b086d&is=6779b6ed&hm=e381a857e97b7d0d819ebc95b157c45ef151d524d0b79a4b6540da17aeb41e23&=&width=275&height=355)
