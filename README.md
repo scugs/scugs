@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325404567990566983/ezgif-4-9758aa3f66.png?ex=677baab1&is=677a5931&hm=b2fb2bf6667c47d7ef6800d832a225c692a71ba58977f8dc33c7cec8e3a4d7f9&)
+![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325404922270847037/ezgif-4-6c44e873e9.png?ex=677bab06&is=677a5986&hm=745df31d5ecb02af29ca462433141773f4854b105529c0d354a5e97ac33aba8b&)
 ![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325401690572193792/68747470733a2f2f73372e657a6769662e636f6d2f746d702f657a6769662d372d643737623136303833382e676966_1.gif?ex=677ba803&is=677a5683&hm=96279262e23eaf0af55689899b5e03c3002b9490cae66c6eafe91f2066122b3e&)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
