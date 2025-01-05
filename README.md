@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![til](https://s6.ezgif.com/tmp/ezgif-6-3a2e66ebdd.gif)
+![til](https://r72.cooltext.com/rendered/cooltext473202929469867.gif)
 ![til](https://s7.ezgif.com/tmp/ezgif-7-d77b160838.gif)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
 
