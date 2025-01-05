@@ -15,8 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![til](https://r72.cooltext.com/rendered/cooltext473202929469867.gif)
-![til](https://s7.ezgif.com/tmp/ezgif-7-d77b160838.gif)
+![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325401691398606879/cooltext473202929469867.gif?ex=677ba804&is=677a5684&hm=47c757422e786f48095b762f905d5fda136f6a308e0bf6f390ddf016f05e8bb8&)
+![til](https://cdn.discordapp.com/attachments/1322513982371659777/1325401690572193792/68747470733a2f2f73372e657a6769662e636f6d2f746d702f657a6769662d372d643737623136303833382e676966_1.gif?ex=677ba803&is=677a5683&hm=96279262e23eaf0af55689899b5e03c3002b9490cae66c6eafe91f2066122b3e&)
 ![image alt](https://static.wikitide.net/rainworldwiki/f/f8/Artificer_spoiler.png)
 
 ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌
